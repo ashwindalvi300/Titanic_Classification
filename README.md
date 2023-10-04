@@ -10,4 +10,4 @@ Wisdom in Visualization: Set off on a visual adventure as interactive plots reve
 
 Future-focused: We look ahead, predicting survival rates for the test results and shedding light on potential survivors.
 
-The Revelation of Insights: Going beyond simple forecasts, we uncover the mysterious elements that impacted survival amid this epochal disaster. Come along with us on this wonderful intellectual journey.
+The Revelation of Insights: Going beyond simple forecasts, we uncover the mysterious elements that impacted survival amid this epochal disaster. Come along with us on this wonderful intellectual journey 🌟.
